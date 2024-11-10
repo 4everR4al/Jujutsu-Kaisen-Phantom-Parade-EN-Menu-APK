@@ -1,10 +1,9 @@
-**Where to find?:**
-https://platinmods.com/vipmods/jujutsu-kaisen-phantom-parade-en-mod-menu-apk-god-mode-damage-defense-multiplier.570/
-
-
 # Jujutsu-Kaisen-Phantom-Parade-EN-Menu-APK
 A modded APK for Jujutsu Kaisen: Phantom Parade with enhanced gameplay features, including God Mode, adjustable damage and defense multipliers, and a customizable mod menu for a personalized gaming experience. Built by the Platinmods community for fans seeking faster progression and creative gameplay tweaks.
 
+
+# Where to find?:
+https://platinmods.com/vipmods/jujutsu-kaisen-phantom-parade-en-mod-menu-apk-god-mode-damage-defense-multiplier.570/
 
 
 **Exploring Platinmods’ Jujutsu Kaisen: Phantom Parade Mod APK – Enhanced Gameplay with Exciting Features**
